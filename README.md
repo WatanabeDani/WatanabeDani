@@ -2,7 +2,7 @@
 - 👀 I am interested in improving myself personally!
 - 🌱 I’m currently learning to play the guitar.
 - 💞️ I’m looking to collaborate on open source projects.
-- 📫 How to reach me: juan.u9.ja@gmail.com
+- 📫 How to reach me: juan.u8.ja@gmail.com
 - 😄 Pronouns: He/Him
 
 <!---
